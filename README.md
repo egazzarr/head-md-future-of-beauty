@@ -70,3 +70,5 @@ What about sexuality? Fashion thrives on the repression of death and sex.
 Fashion is repression, organisation of world around the tension for the orgasm without ever reaching it. 
 What does it mean to be a queer person in fashion? No patronising, no heterosexual, but also no explicit penetration. 
 
+
+![alt text](<2025.12.05 - miroboard.jpg>)
