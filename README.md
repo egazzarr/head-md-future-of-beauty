@@ -2,7 +2,7 @@
 
 ## HEAD MA Media Design - 12.2025 project
 
-### N.19OQ2
+### [Chanel N° 19OQ2](<Chanel No.19OQ2 PDF.pdf>)
 #### What if you could wear the universe on your skin?
 
 ![alt text](scenario_N.19OQ2.jpg)
@@ -96,8 +96,6 @@ What does it mean to be a queer person in fashion? No patronising, no heterosexu
 ### RESEARCH
 
 [Miro board link](https://miro.com/welcomeonboard/VXZkRXB1TGVGMmt2NXFNOHBUOWdOczRXd0dpS29YaXhrVXlFVEJ1b1dmZ2x3SkYvVUsrQTMwOUJ2SHNHaWtBbkw0WGlIT2JvQXUzamxTMUdJQjNIaGhLdVNkcDVZMmdpNlM0clpSQnR4SUZiZU5DcHZtRnpRQUVkQ0NwU2dPYUdNakdSWkpBejJWRjJhRnhhb1UwcS9BPT0hdjE=?share_link_id=147071301213)
-
-![alt text](<2025.12.05 - miroboard.jpg>)
 
 
 
